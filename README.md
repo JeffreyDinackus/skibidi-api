@@ -36,3 +36,8 @@ Skibidi is a professional sports journalist with a passion for cycling, which
 
 
 Skibidi, the German philosopher, first wrote the following about the idea
+
+
+
+
+Inuit village but they are all giant 8 legged behemoths marching across the frozen tundra
