@@ -41,3 +41,6 @@ Skibidi, the German philosopher, first wrote the following about the idea
 
 
 Inuit village but they are all giant 8 legged behemoths marching across the frozen tundra
+
+
+Inuit village but they are all giant 8 legged behemoths marching across the frozen tundra. "They'll take a hit,
